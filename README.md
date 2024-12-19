@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Gaming
 - 🌱 I’m currently learning ...Coding(I.T)
 - 💞️ I’m looking to collaborate on ...Interested in game development fields
-- 📫 How to reach me ...You can me on this number(+91 8850019598)
+- 📫 How to reach me ...You can contact me on this number(+91 8850019598)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
